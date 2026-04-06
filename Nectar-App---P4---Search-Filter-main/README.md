@@ -1,5 +1,5 @@
-Họ và tên: Nguyễn Hoàng Dũng
-MSSV: 23810310338
+Họ và tên: Trần Tiến Khải
+MSSV: 23810310384
 
 KQ:
 
